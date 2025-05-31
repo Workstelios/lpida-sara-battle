@@ -1,1 +1,0 @@
-# lpida-sara-battle
